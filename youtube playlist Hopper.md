@@ -123,6 +123,11 @@
 - [Aya Nakamura - Djadja](https://www.youtube.com/watch?v=iPGgnzc34tY)
 - [5 seconds of summer - youngblood](https://www.youtube.com/watch?v=Jqs5EaAaueA)
 - [Benny Blanco ft. Halsey ft. Khalid](https://www.youtube.com/watch?v=56WBK4ZK_cw)
+- [Savage Garden - I Want You](https://www.youtube.com/watch?v=HQt6jIKNwgU)
+- [James Bay - Let It Go](https://www.youtube.com/watch?v=GsPq9mzFNGY)
+- [Jonathan Jeremiah - Happiness](https://www.youtube.com/watch?v=ZjsbbdsFOOU)
+- [OneRepublic - Counting Stars](https://www.youtube.com/watch?v=hT_nvWreIhg)
+- [Savage Garden - To The Moon And Back](https://www.youtube.com/watch?v=HCm6gRHINqA)
 
 
 
