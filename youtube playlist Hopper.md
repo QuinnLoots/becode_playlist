@@ -41,7 +41,7 @@
 - [Hollywood Undead : We Own The Night](https://www.youtube.com/watch?v=0pk3jCwePXY)
 - [Rag'n'Bone Man : Human](https://www.youtube.com/watch?v=RpimiNvcRC4)
 - [Travis Scott - SICKO MODE](https://www.youtube.com/watch?v=d-JBBNg8YKs)
-- [![Travis Scott - SICKO MODE](https://cps-static.rovicorp.com/3/JPG_250/MI0004/469/MI0004469405.jpg)](https://www.youtube.com/watch?v=d-JBBNg8YKs)
+- [![Travis Scott - SICKO MODE](https://www.youtube.com/watch?v=d-JBBNg8YKs)
 - [GHOSTEMANE - Mercury](https://www.youtube.com/watch?v=31j4DIpgY9U)
 - [GHOSTEMANE - CALIGULA](https://www.youtube.com/watch?v=5_51s0Oc-5c)
 - [Eminem - Fall](https://www.youtube.com/watch?v=MfTbHITdhEI)
