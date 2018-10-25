@@ -102,6 +102,11 @@
 - [Snoop Dogg - Gin and Juice](https://www.youtube.com/watch?v=OKGJOtRaqMg)
 - [The Game - Hate it or Love it](https://www.youtube.com/watch?v=b1Z-coOymzs)
 - [Nas - Made You Look](https://www.youtube.com/watch?v=fsm8kk5Ypxw)
+- [daft Punk](https://www.youtube.com/watch?v=x84m3YyO2oU)
+- [netsky](https://www.youtube.com/watch?v=1WyzF62hptY&t=256s)
+- [chase and status](https://www.youtube.com/watch?v=YXIHXQjbtl8)
+- [doctor p](https://www.youtube.com/watch?v=QnAiqDODHjo)
+- [rob stone](https://www.youtube.com/watch?v=J7IMwop3RHs)
 
 
 
